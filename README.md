@@ -1,0 +1,1 @@
+ Skalā no 1 līdz 10 , GIT un GitHub saprotu uz 6
